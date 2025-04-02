@@ -2,10 +2,36 @@
 
 # Chapter
 
-Wake up, reads the white paper.
+I wake up and shortly afterwards read the small white piece of paper on my bedside table.
+
+It seems today's instructions are relatively simple: All I have to do is take out the trash. What possible harm could there come from that? Maybe don't ask questions like that, you've said the same thing many times before...
+
+Routines, routines, have to stick to my routines. Breakfast, lunch and dinner, have to be in the right order. So when does the trash have to be taken out? Does it matter? Oh, it always matters doesn't it? Well the most reasonable solution would be to dump the trash after each meal, yes, yes, that seems the ideal option. Enough times to make a statement if being observed, while certainly satisfying any minimal bounds. Excellent, well that's decided so then I must generate some actual trash.
+
+For breakfast, I choose to discard the crusts off of my toast. A reasoned option no less. Never liked them that much anyways, how much can be ascertained about me from crusts. What kind of bread do I have though? Plain white, hmmm, no matter. That's enough disclosure about breakfast, no more observable thinking until my next meal.
+
+For lunch, I am going to eat last night's leftovers and dispose of a chicken carcass. How clean does the carcass need to be? As dutifully as can be accomplished before my usual lunch time I say. With a knife and fork, toothpicks in hand, I go to work on the remains of last night's meal.
+
+For dinner, ...
 
 # Chapter
 
-The blue paper.
+*Wakes up and reads the white paper*
+
+# Chapter
+
+Even if I recall writing two distinct notes in the night, there only ever seems to be a single note in the morning. Occasionally multiple items might find themselves summarized on a single note, but this has been exceedingly rare. The day starts and ends usually with a single missive.
+
+# Chapter
+
+*Wakes up and starts reading a blue paper*
+
+Highly unusual. It's an almost exact replica, but in blue today. Surely can't have been me, someone must have snuck in here and replaced the sheet. To do so without being noticed means it's that important a message. But how awful a request, other requests that have clearly been written by outsiders that have made their way to my bedside have incurred or inflicted only a single day's worth of damage. In the grand scheme of the mundi, they have been inconsequential but this here is not.
+
+    "Speak a prayer every single day."
+
+Whom is this for? What purpose does it entail? Clearly it's been left here by some religious zealot who seems to understand a semblance of my gifts. What even is the nature of prayer, aaargh, I only have today to figure all this out before I have to start. And I have to start. I have no choice. I've never had any choice in the matter.
+
+Well I have to resort to what I know. What gods to speak of am I versed with in any sense. The Original Rebecca? That would be fine if I were a Rebecca. The Anima Mundi? The mundi is the mundi, to me there's nothing overtly spiritual about it. For all intents and purposes, prayer requires personification, a listener so to speak. Do I know any local mythos or folklore that would be more relevant? A fictional world comes to mind, the world of Bagran Molfus. I know just the prayer to use: "The universe listens." Short, sharp and to the point. It shall do, thank goodness it should only rob me of a few seconds every day to do so. With such a precious resource as time, one cannot be too lenient with it.
 
 # Chapter
