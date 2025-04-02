@@ -35,3 +35,42 @@ Whom is this for? What purpose does it entail? Clearly it's been left here by so
 Well I have to resort to what I know. What gods to speak of am I versed with in any sense. The Original Rebecca? That would be fine if I were a Rebecca. The Anima Mundi? The mundi is the mundi, to me there's nothing overtly spiritual about it. For all intents and purposes, prayer requires personification, a listener so to speak. Do I know any local mythos or folklore that would be more relevant? A fictional world comes to mind, the world of Bagran Molfus. I know just the prayer to use: "The universe listens." Short, sharp and to the point. It shall do, thank goodness it should only rob me of a few seconds every day to do so. With such a precious resource as time, one cannot be too lenient with it.
 
 # Chapter
+
+*Wakes up and reads the white paper*
+
+    "Speak a prayer every single day."
+
+Again with the request from the blue paper. Am I just doing it wrong? Is my heart not in the right place? Am I saying it wrong? Perhaps I need to reflect on the prayer after doing it. Yes, yes, that seems the most reasonable next step.
+
+    "The universe listens."
+
+Does it really? If I say it out loud, it clearly resonates and other objects and even beings may be able to pick up the words. But isn't that just perceving not listening? Is it because the change is meant to be internal each time I say the prayer? When the universe listens, am I the embodiment? That seems a bit silly if I'm the only possible agent of change. But I guess it depends how widely I resonate the words that are being listened to. I'll never get to the bottom of this... I'll just settle for repeating it three times, that always does the trick. Then the recurring messages should cease.
+
+    "The universe listens."
+    "The universe listens."
+
+# Chapter
+
+I don't want to do this anymore. Don't make me do this anymore. Every morning, these words repeat themselves before I read the paper.
+
+# Chapter
+
+I just don't want to read it. I just don't want to read it. I don't want to get out of bed. Please god.
+
+# Chapter
+
+*Wakes up and reads the white paper*
+
+    "It's time..."
+
+The paper had seven strokes of ink in the corner and so it really seemed like it was time. So reluctantly with nothing but my pajamas, I left my house to see what was going on outside for the first time in months.
+
+    BREAK
+
+# Chapter
+
+I return in my pajamas and slink back off to bed. The day is complete. All days are complete. I say my prayer, "The universe listens."
+
+# Chapter
+
+I don't want to leave the bed. I don't want to leave the bed. I'm not even going to read the paper today. Before I go back to bed, I say my prayer, "The universe listens."
