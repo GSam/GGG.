@@ -36,6 +36,14 @@ Well I have to resort to what I know. What gods to speak of am I versed with in 
 
 # Chapter
 
+*BOOOM*
+
+A rush of white paper streams in every opening of the house. I quickly try to shut the windows before they are consumed by paper. Another burst event has occurred. I've pondered why these burst events occur many times already. They seem to be a natural consequence of oneiromancers interacting with each other based on acting on their own individual prophecies. That as well as mancers and so-called spiritualists of other vocations. Where each individual little action does little to affect the overall future, they eventually accumulate and cascade to cause larger changes. But the changes backfire in on themselves to prevent future causation from being changed. This is the true nature of these bursts. One question remains is that, are these pieces of paper all magic or are they individually delivered by other masters of oneiros, or masters of other mancies?
+
+At this point it doesn't really matter does it? I just have to stop them from suffocating me... Oh someone please help me!
+
+# Chapter
+
 *Wakes up and reads the white paper*
 
     "Speak a prayer every single day."
