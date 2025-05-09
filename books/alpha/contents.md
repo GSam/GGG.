@@ -4,15 +4,30 @@
 
 I wake up and shortly afterwards read the small white piece of paper on my bedside table.
 
-It seems today's instructions are relatively simple: All I have to do is take out the trash. What possible harm could there come from that? Maybe don't ask questions like that, you've said the same thing many times before...
+It seems today's instructions are relatively simple: All I have to do is take out the trash. What possible harm could there come from that? Maybe don't ask questions like that... a familiar sense of dread began creeping through the edges of my mind.
 
-Routines, routines, have to stick to my routines. Breakfast, lunch and dinner, have to be in the right order. So when does the trash have to be taken out? Does it matter? Oh, it always matters doesn't it? Well the most reasonable solution would be to dump the trash after each meal, yes, yes, that seems the ideal option. Enough times to make a statement if being observed, while certainly satisfying any minimal bounds. Excellent, well that's decided so then I must generate some actual trash.
+I carefully halve the paper, folding it first one way and then in the opposite direction. Tearing ever so slightly and then rapidly to maintain a clean edge. I halve it again and again until the paper is no more. Routines, routines, have to stick to my routines. Breakfast, lunch and dinner, have to be in the right order. So when does the trash have to be taken out? Does it matter? Oh, it always matters doesn't it? Well the most reasonable solution would be to dump the trash after each meal, yes, yes, that seems the ideal option. Enough times to make a statement if being observed, while certainly satisfying any minimal bounds. Excellent, well that's decided so then I must generate some actual trash.
 
-For breakfast, I choose to discard the crusts off of my toast. A reasoned option no less. Never liked them that much anyways, how much can be ascertained about me from crusts. What kind of bread do I have though? Plain white, hmmm, no matter. That's enough disclosure about breakfast, no more observable thinking until my next meal.
+For breakfast, I choose to discard the crusts off of my toast. A reasoned option no less. Never liked them that much anyways, how much can be ascertained about me from crusts. What kind of bread do I have though? Plain white, hmmm, no matter. Toast, toast, toast. Crust, crust, crust. As I consume the plain white toast, all I could think of was crusts. The flavour, the lack of topping, the sensations, none of it mattered, just crusts. That's enough disclosure about breakfast, no more observable thinking until my next meal.
+
+# TODO We're very much inside his head (which is good), but grounding him a little more in a physical space could be beneficial.
+       What does the room feel like? Is it sterile, cluttered, cold?
+       When he eats, what does the toast taste like (beyond just crusts)? The chicken? The effort of picking it clean?
 
 For lunch, I am going to eat last night's leftovers and dispose of a chicken carcass. How clean does the carcass need to be? As dutifully as can be accomplished before my usual lunch time I say. With a knife and fork, toothpicks in hand, I go to work on the remains of last night's meal.
 
+Before dinner, I went about cleaning the shack.
+
 For dinner, ...
+
+# TODO: You set up the generation of trash well. The act of taking it out after each meal could be a mini-scene in itself, fraught with its own paranoia. Does he check for watchers? Does he use a specific bin? Does he look for signs his trash has been inspected?
+
+# TODO There's a lot of internal monologue with similar sentence structures. Mix in some shorter, punchier thoughts or slightly longer, more rambling ones to reflect his anxiety.
+
+# TODO The "Observable Thinking":
+       This is a brilliant line. Explore it. Is he writing this down? Is he worried about telepaths? Is this internal monologue a rehearsal for what he might say if questioned?
+       If he's writing in a journal, the act of writing and then self-censoring could be a powerful scene.
+
 
 # Chapter
 
@@ -65,6 +80,8 @@ I don't want to do this anymore. Don't make me do this anymore. Every morning, t
 
 I don't want to do today. I don't want to get out of bed.
 
+*BOOOM*
+
 # Chapter
 
 I don't want to go to sleep. I don't want to do tomorrow.
@@ -72,6 +89,9 @@ I don't want to go to sleep. I don't want to do tomorrow.
 # Chapter
 
 I just don't want to read it. I just don't want to read it. I don't want to get out of bed. Please god.
+
+*BOOOM*
+
 
 # Chapter
 
@@ -82,6 +102,12 @@ I just don't want to read it. I just don't want to read it. I don't want to get 
 The paper had seven strokes of ink in the corner and so it really seemed like it was time. So reluctantly with nothing but my pajamas, I left my house to see what was going on outside for the first time in months.
 
 ## BREAK
+
+# Chapter
+
+*BOOOM*
+
+# Chapter
 
 # Chapter
 
