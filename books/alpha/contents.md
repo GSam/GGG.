@@ -63,6 +63,14 @@ I don't want to do this anymore. Don't make me do this anymore. Every morning, t
 
 # Chapter
 
+I don't want to do today. I don't want to get out of bed.
+
+# Chapter
+
+I don't want to go to sleep. I don't want to do tomorrow.
+
+# Chapter
+
 I just don't want to read it. I just don't want to read it. I don't want to get out of bed. Please god.
 
 # Chapter
