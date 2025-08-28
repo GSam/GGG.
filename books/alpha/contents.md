@@ -30,6 +30,12 @@ The time to take out the trash comes near. In a white bag contains the special c
 
 *Wakes up and reads the white paper*
 
+"You must steal the hat of the politician Potter." What kind of ridiculous missive is this. I prepare myself to leave the house and leave as promptly as I can without stirring attentiion from someone. On my way to Parliament House, I get the feeling I'm being followed. I look around but don't see anything, but my senses are sharper than that, there is definitely someone following me. And then I spot Potter with his signature top-hat on his head. My mind raced for an exit strategy. Steal the hat, fine. I could always claim it was an accident, or even return it later. No rules against that, surely.
+
+As I neared Potter, I spotted her. Red hair, unnervingly still. A Rebecca. Of all the damn things. The knowledge flooded my mind, a defense mechanism. A 2000-year-old dynasty. A hivemind of clones worshipping the original who touched the Black Plinth. She gained enlightenment, the ability to share thoughts and memories through plinth-imbued stones, but the connection was strongest with those genetically close. So she cloned herself. An entire religion engineered around memory harvests and a rigid hierarchy.
+
+And now one was here, watching me. What was her objective? Rebeccas had clonal lines dedicated to spycraft and infiltration. While all genetically similar, small epigenetic adaptations were cultivated over generations. This one wouldn't be from a pure line; she'd be a specialist. A hunter.
+
 # Chapter
 
 Even if I recall writing two distinct notes in the night, there only ever seems to be a single note in the morning. Occasionally multiple items might find themselves summarized on a single note, but this has been exceedingly rare. The day starts and ends usually with a single missive.
