@@ -10,19 +10,16 @@ I carefully halve the paper, folding it first one way and then in the opposite d
 
 For breakfast, I choose to discard the crusts off of my toast. A reasoned option no less. Never liked them that much anyways, how much can be ascertained about me from crusts. What kind of bread do I have though? Plain white, hmmm, no matter. Toast, toast, toast. Crust, crust, crust. As I consume the plain white toast, all I could think of was crusts. The flavour, the lack of topping, the sensations, none of it mattered, just crusts. That's enough disclosure about breakfast, no more observable thinking until my next meal.
 
-# TODO We're very much inside his head (which is good), but grounding him a little more in a physical space could be beneficial.
-       What does the room feel like? Is it sterile, cluttered, cold?
-       When he eats, what does the toast taste like (beyond just crusts)? The chicken? The effort of picking it clean?
+For lunch, I am going to eat last night's leftovers and dispose of a chicken carcass. How clean does the carcass need to be? As dutifully as can be accomplished before my usual lunch time I say. With a knife and fork, toothpicks in hand, I go to work on the remains of last night's meal. A wave of satisfaction came over me as the job progressed, it felt right to be completing the day's task. There was a joy, or rather perhaps an addiction associated with it.
 
-For lunch, I am going to eat last night's leftovers and dispose of a chicken carcass. How clean does the carcass need to be? As dutifully as can be accomplished before my usual lunch time I say. With a knife and fork, toothpicks in hand, I go to work on the remains of last night's meal.
+Before dinner, I went about cleaning the shack. Tall stacks of books rose to the ceiling making one wonder if the ceiling itself had to be reinforced by said columns. Curious items litter the shack, mostly on tables while the floor was covered with loose sheets of paper covering every topic imaginable. A warm fire raged in the corner, one of magical origin which need no fuel. The act of cleaning in this house was more akin to spreading some entropy. Loose sheets would be dragged along the ground to find a new resting place, usually with a couple new friends but otherwise the room look unchanged. The composition of the room evoked its own kind of deep dark magic, one that cannot be described here.
 
-Before dinner, I went about cleaning the shack.
+TODO: Before dinner, I began the ritual of "cleaning." It was less about imposing order and more about communing with the shack's particular brand of chaos. Towers of forgotten knowledge, their spines like silent sentinels, scraped against the soot-stained ceiling. On every surface, curious artifacts vied for space: a tarnished astrolabe, a single, perfectly preserved raven's feather, and a collection of mismatched teacups, each containing a single, dried-out moth. The floor was a sea of scattered notes, the ink on some faded to a ghostly whisper. In the corner, a fire of impossible colors crackled without fuel, casting long, dancing shadows that seemed to writhe with a life of their own. My "cleaning" was a gentle disturbance, a stirring of the dust motes in the air, a shuffling of papers that only served to create new, equally bewildering arrangements. Each movement was deliberate, a silent incantation to the deep, dark magic that pulsed within the very walls of the shack.
 
-For dinner, ...
+For dinner, I want to cook a very simple meal. Vegetarian, no meat. I wish to be merely satisfied with my meal. Out of the cooling box, I produce a large handful of vegetables, tofu and some herbs. Tofu's composition is... Calorie content... Vitamin content... Mineral content. In conjunction with the various quantities of carrots... cabbage... cheese. I'm glad to say that the contents add up nicely to produce a round meal.
 
-# TODO: You set up the generation of trash well. The act of taking it out after each meal could be a mini-scene in itself, fraught with its own paranoia. Does he check for watchers? Does he use a specific bin? Does he look for signs his trash has been inspected?
+The time to take out the trash comes near. In a white bag contains the special contribution for the day. This offering is sacred and must be treated as such. With care, I add decorative runes to the inner-side of the bag. The outer side is too conspicuous, it must appear one way but be transformative in another. Carrying the bag as I exit the house I check for any life outside. There is none to speak of, I try to play it cool while also taking note of my surroundings to walk to the rubbish bin outside of my house. Lifting the lid slowly, I commit one last thought to the bag's contents and safely drop it in the bin with a 'thunk'. I replace the lid slowly and return to warmness of my shack.
 
-# TODO There's a lot of internal monologue with similar sentence structures. Mix in some shorter, punchier thoughts or slightly longer, more rambling ones to reflect his anxiety.
 
 # TODO The "Observable Thinking":
        This is a brilliant line. Explore it. Is he writing this down? Is he worried about telepaths? Is this internal monologue a rehearsal for what he might say if questioned?
@@ -71,6 +68,18 @@ Does it really? If I say it out loud, it clearly resonates and other objects and
 
     "The universe listens."
     "The universe listens."
+
+# Chapter
+
+Before I am fully conscious, all I can think of is the need to read the paper. It's all-consuming. What am I going to have to do in response? What if it's something I just cannot do?
+
+# Chapter
+
+My stomach hurts in anticipation of what I need to do today. My back and shoulders are tense.
+
+# Chapter
+
+I can't remember the last time I felt well when waking up.
 
 # Chapter
 
